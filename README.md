@@ -1,1 +1,1 @@
-### Hello ,this is Atalanta Pal.I am a first year electronics undergrad, here in this domain to learn various multidisciplinary subjects and obviously progarmming which i believe will drastically improve myself and help me in pursuing my dream career
+### Hello ,this is Atalanta Pal.I am a first year electronics undergrad, here in this domain to learn various multidisciplinary subjects and obviously progarmming which i believe will drastically improve myself and help me in pursuing my dream career.
